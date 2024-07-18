@@ -8,7 +8,7 @@ When I started reading books there were only paper books. I'm sure digital forma
 
 The point is, there is a generation that never had a digital format to read from and there is a generation which has seen both side by side. The generation which is going to never see a paperback is yet to come. But I hope it never does.
 
-There is sense of joy and happiness in reading from a physical book. The latest goobers, like the Amazon Kindle and such, are trying to replicate the feeling of paper with the added benefit of reading a digital book. 
+There is sense of joy and happiness in reading from a physical book. The latest goobers, like the Amazonn Kindle and such, are trying to replicate the feeling of paper with the added benefit of reading a digital book. 
 
 Yes, I said it. There are benefits of reading from digital formats. I don't like e-books… or pdfs…whatever. But there are benefits non-the-less. 
 

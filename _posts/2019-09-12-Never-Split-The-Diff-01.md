@@ -19,7 +19,7 @@ Let's start chronologically. There are about 80 points that I have taken from th
 The concept of mirroring was easily understandable. It's simple and it's effective.
 We tend to make groups no matter where we are, high school, college, office, family gathering, wherever. We just live being around people who are like us and think like us and respond to what we say. When we act as a mirror we become on of them and they open to us. 
 
-You smoke with a smoker and he will start taking.
+You smoke with a smoker and he will start taking....
 
 Mirroring exploits this phenomena in us. By simply repeating the last few words spoken by your counter part you attain the power to keep the conversation going. During this conversation we can further exploit the other party using techniques described a little further in the book.
 
