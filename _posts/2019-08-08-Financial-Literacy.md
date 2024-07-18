@@ -5,7 +5,7 @@ date: 2019-08-08
 excerpt: "Knowledge that our community is dead bend not to teach"
 tags: [uglystance, life, business, happiness, finance, money, selfemployed, failures]
 ---
-When I was 18 I asked an Uncle of mine, who had his own business, to teach me. He told me to forget about it for now and just focus on my education.
+When I was 18, yes, I asked an Uncle of mine, who had his own business, to teach me. He told me to forget about it for now and just focus on my education.
 
 I started my first business when I was in Kindergarten. On one Eid I got a lot more Edi then I expected, which was about 20-Rs, this was back in the year 2000. With this insane amount of money I had, I decided to start an Eid card business. This idea wasn't any revelation or anything like that. I just saw a neighbor's kid selling cards outside his house and I wanted to do the same. And now I had the money to do it. 
 
