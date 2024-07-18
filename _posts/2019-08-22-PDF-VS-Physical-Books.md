@@ -4,7 +4,7 @@ Testing is working
 
 This is a discussion… no let me correct myself, this is a WAR that has been going on for as long as the world has been in existence. I'm totally exaggerating by the way.
 
-When I started reading books there were only paper books. I'm sure digital formats were present at the time but I'm talking about a time when computers in my country were unheard of… mobile phones were witch craft… and smart phones would have proven that you were the incarnation of Terminator.
+When I started reading books there were only paper books. I'm sure digital formats were present at the time but I'm talking about a time when computers in my coountry were unheard of… mobile phones were witch craft… and smart phones would have proven that you were the incarnation of Terminator.
 
 The point is, there is a generation that never had a digital format to read from and there is a generation which has seen both side by side. The generation which is going to never see a paperback is yet to come. But I hope it never does.
 
