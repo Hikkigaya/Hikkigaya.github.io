@@ -1,5 +1,7 @@
 ![Burning Books](https://media.giphy.com/media/c5axFSKnD7SSY/giphy.gif)
 
+Testing for Hassan
+
 This is a discussion… no let me correct myself, this is a WAR that has been going on for as long as the world has been in existence. I'm totally exaggerating by the way.
 
 When I started reading books there were only paper books. I'm sure digital formats were present at the time but I'm talking about a time when computers in my country were unheard of… mobile phones were witch craft… and smart phones would have proven that you were the incarnation of Terminator.
